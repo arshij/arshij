@@ -1,4 +1,4 @@
-### Hi there 👋
+### 👋 Hi there! I'm a developer from SF 🌉 and love all things product & innovation. Always keeping ethics in mind, working to build a better future.
 
 <!--
 **arshij/arshij** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
