@@ -3,7 +3,7 @@ I'm a developer from SF 🌉 and love all things product & innovation.
 
 Driven by ethics & working to build a better future ☀️
 
-Learn more about me @ [arshijujara.com](http://www.arshijujara.com).
+Learn more about me @ [arshi.com](http://www.arshi.com).
 
 
 
